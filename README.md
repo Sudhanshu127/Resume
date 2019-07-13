@@ -1,2 +1,3 @@
 # Resume
-My resume till December 2018
+My resume till July 2019
+
