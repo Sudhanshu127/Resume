@@ -1,3 +1,3 @@
 # Resume
-My resume till July 2020
+My resume till November 2020
 
